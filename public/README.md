@@ -1,4 +1,4 @@
-![XEION Logo](https://us-east-1.tixte.net/uploads/media.quangdayy.us.kg/XEION.png)
+![XEION Logo](https://us-east-1.tixte.net/uploads/tixte.32x.me/xeion_logo.png)
 
 # **XEION**
 
